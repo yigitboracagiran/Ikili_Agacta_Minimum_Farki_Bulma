@@ -1,0 +1,1 @@
+# Ikili_Agacta_Minimum_Farki_Bulma
